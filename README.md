@@ -1,1 +1,0 @@
-# Educational-Equality-In-India
